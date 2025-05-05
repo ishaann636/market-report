@@ -1,4 +1,4 @@
-**Australian Co-working Space Market: Flexibility Meets Innovation in Modern Workspaces**
+**Australia Co-working Space Market: Flexibility Meets Innovation in Modern Workspaces**
 
 **Introduction to a New Era of Work**
 
